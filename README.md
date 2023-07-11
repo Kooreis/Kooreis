@@ -1,4 +1,2 @@
-Discord: Kreis#3000
-
-This account is exclusively for my 1.18.1 Fabric projects.
-Please reach out to me on the discord provided above with any questions.
+You can email kooreis.official@gmail.com with any questions/concerns.
+This is my main hub for all of my personal projects.
