@@ -1,2 +1,3 @@
-You can email kooreis.official@gmail.com with any questions/concerns.
-This is my side hub for some of my personal projects.
+Want help with something?
+Reach out to me on LinkedIn; https://www.linkedin.com/in/jbjornberg/
+Or write me an email at jeremy.bjornberg.jr@gmail.com
